@@ -1,3 +1,5 @@
+https://financialalgorithm.wordpress.com/author/seojin313/
+
 !!Obsolete Project 
 Optionetic site is no longer availble 
 
